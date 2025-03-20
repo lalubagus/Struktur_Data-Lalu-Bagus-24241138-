@@ -1,1 +1,1 @@
-# Struktur_Data-Lalu-Bagus-24241138-
+# Struktur_Data (Lalu Bagus 24241138)
